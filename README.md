@@ -5,7 +5,8 @@
 - !!! come say hi i literally love talking to people esp if we have the same interests, lf art friends as well <3 !!!
 
 - interests: splatoon, pjsk, animal jam, furry fandom stuff, reptiles <3 (ask me abt my pets!!><), mcr, pompompurin, nana, vulture culture, and plants +biology stuff cuz im a nerd, my ocs..nd oc designs in general
-- just a lil warning; i can be a little insensitive at times nd i have a crude humour, i say slurs often. please don't make overly sexual jokes around me bc im an sa victim, im fine honestly unless it goes too far or too detailed.
+- just a lil warning; i can be a little insensitive at times nd i have a crude humour, i say the f slur often. please don't make overly sexual jokes around me bc im an sa victim, im fine honestly unless it goes too far or too detailed.if anything i saw
+y ever triggers u or makes u uncomfortable lmk right away so i can put myself in line.
 
   ![image](https://github.com/user-attachments/assets/3a14cba5-77d4-441c-9b82-f9b48209e5dd)![image](https://github.com/user-attachments/assets/895f9c87-ce91-4742-920d-5c12c238af7f)![image](https://github.com/user-attachments/assets/dd217cb6-1f31-4c19-8b5f-c1bddb72153e)
 
