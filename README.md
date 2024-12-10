@@ -1,5 +1,6 @@
 yo
-"C:\Users\alybo\OneDrive\Pictures\87385016_knrdI0Z0kPXcUUJ.png"
+![image](https://github.com/user-attachments/assets/5a714db5-2532-45b8-8ba8-ecce829a90fa)
+
 
 
 <!--
