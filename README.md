@@ -1,5 +1,6 @@
-## Hi there 👋
-![image](https://github.com/user-attachments/assets/f6ee2acb-eb6c-464a-a226-decb0b529882)
+yo
+![image](https://github.com/user-attachments/assets/f83a673c-a24e-415e-b7e3-aae86a648b50)
+
 
 <!--
 **sea1pup/sea1pup** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
